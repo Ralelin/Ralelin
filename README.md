@@ -18,6 +18,23 @@ IM GONNA EAT ELIESESESES!!!!!!!
   <img height="200" width="400" src="https://files.catbox.moe/b3l2zj.png"  />
 </div>
 
+<div align="center">
+  
+THANK GOD ELISE🍭🎀THANK GOD ELISE🍭🎀 GUARDIAN ANGEL ELISE TO EVERYONE!!🍭🎀
+  
+THANK GOD ELISE🍭🎀THANK GOD ELISE🍭🎀 GUARDIAN ANGEL ELISE TO EVERYONE!!🍭🎀
+
+THANK GOD ELISE🍭🎀THANK GOD ELISE🍭🎀 GUARDIAN ANGEL ELISE TO EVERYONE!!🍭🎀
+
+THANK GOD ELISE🍭🎀THANK GOD ELISE🍭🎀 GUARDIAN ANGEL ELISE TO EVERYONE!!🍭🎀
+
+THANK GOD ELISE🍭🎀THANK GOD ELISE🍭🎀 GUARDIAN ANGEL ELISE TO EVERYONE!!🍭🎀
+
+THANK GOD ELISE🍭🎀THANK GOD ELISE🍭🎀 GUARDIAN ANGEL ELISE TO EVERYONE!!🍭🎀
+
+THANK GOD ELISE🍭🎀THANK GOD ELISE🍭🎀 GUARDIAN ANGEL ELISE TO EVERYONE!!🍭🎀
+</div>
+
   <img height="300" width="300" src="https://files.catbox.moe/e6yqzx.jpg"  />
 <div align="center">
   <img height="300" width="300" src="https://files.catbox.moe/e6yqzx.jpg"  />
