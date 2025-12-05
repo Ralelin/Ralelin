@@ -5,7 +5,9 @@ INT PLSLSLSLLSLSLSLS!!!!!!!
 I am very sociable!! It is easy for me to maintain a conversation if we have a topic for it!!!!
 
 I don't have a dni as such. I communicate with everyone without worrying about it!!!! If I'm not comfortable with you, then most likely I'll quickly say so :P
+
 ed:: okay... srry. now ive a lil dni
+
 DNI:: elise fans, elise kins/irls, elise w ANYONE shippers, elise haters, rude jokes abt elise. 
 </div>
 
